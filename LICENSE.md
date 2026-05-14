@@ -1,4 +1,4 @@
-
+Download Free rare king legacy Script for king legacy and experience the ultimate in gameplay enhancement with instant win and silent aim. Designed for gamers who demand the best,
 
 
 
